@@ -1,2 +1,3 @@
 # kupa
 Gówno  o tokenie: ODk2Nzk2MDQ4MTEzMTQzODE5.YWMUZw.6pEIiJtMoSCVs1kZqZPFs15_w_4
+ODk3NTY4NDcyMjYxODYxMzk2.YWXjxw.mmbJtSHSYwS8rHY-_SCx3PjOyX0 g
